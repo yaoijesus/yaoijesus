@@ -2,4 +2,4 @@
 
 ure so dumb brah
   
-<img src="https://files.catbox.moe/sjo1cw.png">
+<img src="https://files.catbox.moe/22dsef.jpg">
